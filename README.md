@@ -1,2 +1,0 @@
-# mestrado
-projetos do coleginho
